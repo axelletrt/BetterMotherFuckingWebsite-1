@@ -1,1 +1,1 @@
-# BetterMotherFuckingWebsite
+https://nicocouz.github.io/BetterMotherFuckingWebsite/
